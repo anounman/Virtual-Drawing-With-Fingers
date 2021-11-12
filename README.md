@@ -15,3 +15,9 @@
 ### All Finger 🦖 --> For Eraser
 
 
+# Example ⚫ 
+
+
+https://user-images.githubusercontent.com/71139852/141452638-0c0751c8-c453-4d71-a158-725cabb8b87d.mp4
+
+
